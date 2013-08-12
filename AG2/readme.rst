@@ -2,4 +2,4 @@
 READ ME
 ============
 
-エンゼルギア天使大戦TRPG The 2nd Editionのシナリオ置き場です。
+繧ｨ繝ｳ繧ｼ繝ｫ繧ｮ繧｢螟ｩ菴ｿ螟ｧ謌ｦTRPG The 2nd Edition縺ｮ繧ｷ繝翫Μ繧ｪ鄂ｮ縺榊ｴ縺ｧ縺吶�
