@@ -109,4 +109,4 @@ EGのルールとして、以下を採用する。
 日程調整用
 ===========================================================
 
-http://densuke.biz/list?cd=WbSvkrb9yzMr5em7
+http://densuke.biz/list?cd=uyEvv3WzFPCMsX4n
